@@ -1,4 +1,4 @@
-# TOMORROW X TOGETHER – 永遠に光れ (Everlasting Shine)
+# TOMORROW X TOGETHER – Everlasting Shine
 
 > **歌詞登録ステータス：同期歌詞あり**
 
